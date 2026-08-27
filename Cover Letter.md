@@ -2,8 +2,7 @@
 
 **Vikas Kumar Singh**  
 Bengaluru, Karnataka, India  
-+91 9686860703 | vikas28singh@yahoo.com | https://www.linkedin.com/in/vikas-kumar-singh-83a19855/details/certifications/
-
++91 9686860703 | vikas28singh@yahoo.com | https://www.linkedin.com/in/vikas-kumar-singh-83a19855
 ---
 
 **Dear Hiring Manager,**
